@@ -1,4 +1,4 @@
-
+custom Filter for Affinity Photo for macOS - vector export and real-time preview offers the most advanced Affinity Photo for macOS filter, with vector export and real-time
 
 
 
